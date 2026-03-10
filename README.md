@@ -1,1 +1,0 @@
-# Pterodactyl-Theme-1.2-Latest
